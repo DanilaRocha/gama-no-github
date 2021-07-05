@@ -1,0 +1,1 @@
+Eu estou achando bem desafiador lidar o Git, estu começando do zero, mas aberta aos novos desafios e muito curiosa. Estou tomando notas e treinando, às vezes me perco e volto vídeos, peço ajuda a amigos, pesquiso na internet e está dando certo.
